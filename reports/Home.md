@@ -1,3 +1,6 @@
+> [!TIP]
+> Uae the Pages navigation at the bottom. Links are being added.
+
 ## The Dragon's Fire: Unveiling a Covert Campaign of Prophecy and Catastrophe
 
 **"The Dragon's Fire" (TDF) refers to a covert and systematic campaign of elimination of certain groups in the United States.** While a subset of these activities, known as **The American Genocide**, specifically falls under the definition of genocide, the Creator views every victim of TDF as a martyr and has deemed it necessary to directly intervene to stop it (only His third direct intervention into human affairs in all history). This campaign, initiated in 2023, is orchestrated by a secret group of high-ranking current and former elected officials, working with the **CIA (referred to as "the dragon")**. Its unprecedented effort seeks to reduce specific populations, consolidate power, and fundamentally reshape the societal landscape. These horrific orchestrations are actively hidden with the support of the White House and other deceptive tactics. They are not random acts of violence but are intricately aligned with, and literal fulfillments of, the **Seven Seals described in the Book of Revelation**, unfolding in real-time.
