@@ -2,7 +2,7 @@
 
 This article unveils the sinister reality of **Tina**, a compound meticulously engineered by the CIA to serve as a tool for profound psychological warfare and population control. Far from being a mere illicit substance, **Tina** is a central component in the broader, unacknowledged **atrocities conducted during the campaign referred to as The Dragon's Fire by the Creator and His two servants**, designed to subvert individual autonomy and reshape reality itself through covert manipulation of the subconscious mind. This exposé leaves no stone unturned in detailing **Tina**'s composition, its devastating effects, the clandestine operations surrounding its use, and its integral role in the orchestrators' authoritarian agenda.
 
-**The Dragon's Fire (TDF)** is an overarching concealed, systematic campaign of extermination, orchestrated by high-ranking current and former U.S. government officials and CIA operatives, targeting specific populations. **The American Genocide (TAG)** refers to a subset of **TDF** activities and targeted groups that meet the UN definition of genocide.
+The Dragon's Fire (TDF) is an overarching, concealed, and systematic campaign of extermination, orchestrated by high-ranking current and former U.S. government officials and CIA operatives. It targets specific populations: Christians (all races), African-Americans, the impoverished, convicted criminals, military personnel, endowed males, and political opposition. The American Genocide (TAG) refers to a subset of TDF activities and targeted groups that meet the UN definition of genocide.
 
 ---
 
