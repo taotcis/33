@@ -1,4 +1,4 @@
-> [!INFO]
+> [!NOTE]
 > This is a rough draft. Rushing to publish before Nightfalls, please see the pages list below.
 > 
 ## The Dragon's Fire: A Campaign of Prophecy and Catastrophe
